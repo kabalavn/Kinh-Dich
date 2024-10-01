@@ -2,6 +2,10 @@
 
 **Kinh Dịch** là một hệ thống tư tưởng triết học của người Á Đông cổ đại. Tư tưởng triết học cơ bản dựa trên cơ sở của sự cân bằng thông qua đối kháng và thay đổi (chuyển dịch). Hiện nay Kinh Dịch được coi là tinh hoa của cổ học của người Á Đông (trong đó có Việt Nam). Nó được vận dụng vào rất nhiều lĩnh vực của cuộc sống như thiên văn, địa lý, quân sự, nhân mệnh…
 
+  - Rút quẻ kinh dịch: https://dich.kabala.vn/que/
+  
+  - Iching English: https://dich.kabala.vn/iching/
+
 # Tra cứu 64 quẻ dịch
 
 Dưới đây là 64 Quẻ Dịch, giúp ta thấy hành lang của cuộc đời mình, từ đó tiến đến sự minh triết trong nhân sinh quan, vũ trụ quan của mỗi người – nhằm đạt được tính ưu sinh, theo lành tránh dữ, thúc đẩy sự tự tế và tấm lòng cao thượng.
